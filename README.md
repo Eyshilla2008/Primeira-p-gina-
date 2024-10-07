@@ -3,7 +3,8 @@
 ### Estudante Eyshilla :guitar::metal:
 ** 
 sou guitarrista :guitar:
-atleta :kissing_heart:
-amo academia :
-também amo jogar jogos online 
-amo rock
+atleta :1st_place_medal:
+amo academia :muscle:
+também amo jogar jogos online :video_game::iphone:
+amo rock :guitar:
+amo animais:dog:
